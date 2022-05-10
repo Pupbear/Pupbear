@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Pupbear
+- 👀 I’m interested in dogs and science
+- 🌱 I’m currently learning   Science
+- 💞️ I’m looking to collaborate on art 
+--->
